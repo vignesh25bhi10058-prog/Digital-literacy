@@ -1,1 +1,7 @@
+file:///D:/My%20Documents/Pictures/Screenshots/Screenshot%202026-03-25%20195506.png
 
+SCREENSHOT OF INFORGRAPHIC
+
+"I used the free version of Canva to create a single-page infographic for my batchmates. My design focuses on three core pillars
+of Digital Literacy: its definition, essential student tools, and internet safety. The layout uses icons and bullet points to ensure
+the information is scannable and easy to digest at a glance. I found it particularly interesting to see how much information can be conveyed througH
