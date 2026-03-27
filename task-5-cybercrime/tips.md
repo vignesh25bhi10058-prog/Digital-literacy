@@ -26,7 +26,7 @@ Official Portal: File a formal complaint at cybercrime.gov.in.
 Bank Contact: Notify your bank within 3 hours of a fraudulent transaction to increase the chances of a "reversal."
 
 
-
+.
 
 PROJECT REPORT 
  Part 2: Project Report (100–150 Words)
